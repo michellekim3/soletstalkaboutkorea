@@ -1,20 +1,27 @@
-## WELCOME, SO LET'S TALK ABOUT KOREA
+# WELCOME, SO LET'S TALK ABOUT KOREA
 Are you curious about Korea? You might have heard of Korean dramas, Korean BBQ, and K-Pop, but may not know much about them. With the growing popularity of the South Korean culture, I'm here to talk about Korea. 
 
 ### THE EDITOR
 
 My name is Michelle and I am a Korean-American living in California.
 
+## KOREAN HISTORY
+
+
+## KOREAN CUISINE
+
+
+## KOREAN POPULAR CULTURE
+
+
+# KOREAN ENTERTAINMENT
+
+
+# UNDERSTANDING KOREAN CULTURE
+
 ```markdown
 
-# KOREAN HISTORY
-
-
-# BASIC FACTS ABOUT KOREA
-
-
-# KOREAN POPULAR CULTURE
-
+#idk what this is
 
 ```
 
