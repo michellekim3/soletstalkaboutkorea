@@ -1,17 +1,15 @@
 ## WELCOME, SO LET'S TALK ABOUT KOREA
+Are you curious about Korea? You might have heard of Korean dramas, Korean BBQ, and K-Pop, but may not know much about them. With the growing popularity of the South Korean culture, I'm here to talk about Korea. 
 
-You can use the [editor on GitHub](https://github.com/michellekim3/soletstalkaboutkorea/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+### THE EDITOR
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+My name is Michelle and I am a Korean-American living in California.
 
 ```markdown
-Syntax highlighted code block
 
-# Header 1
+# KOREAN HISTORY
+
+
 ## Header 2
 ### Header 3
 
