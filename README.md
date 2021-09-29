@@ -20,11 +20,7 @@ The editor, Michelle Kim, is a Korean-American currently living in California. S
 
 ### UNDERSTANDING KOREAN CULTURE
 
-```markdown
 
-#idk what this is
-
-```
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
