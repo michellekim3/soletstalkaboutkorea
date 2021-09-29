@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## WELCOME, SO LET'S TALK ABOUT KOREA
 
 You can use the [editor on GitHub](https://github.com/michellekim3/soletstalkaboutkorea/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
