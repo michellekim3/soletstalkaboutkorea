@@ -14,10 +14,10 @@ My name is Michelle and I am a Korean-American living in California.
 ## KOREAN POPULAR CULTURE
 
 
-# KOREAN ENTERTAINMENT
+## KOREAN ENTERTAINMENT
 
 
-# UNDERSTANDING KOREAN CULTURE
+## UNDERSTANDING KOREAN CULTURE
 
 ```markdown
 
