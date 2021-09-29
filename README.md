@@ -7,7 +7,7 @@ My name is Michelle and I am a Korean-American living in California.
 
 ```markdown
 
-# KOREAN HISTORY
+KOREAN HISTORY
 
 
 ## Header 2
