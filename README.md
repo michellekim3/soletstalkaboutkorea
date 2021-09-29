@@ -3,7 +3,7 @@ Are you curious about Korea? You might have heard of Korean dramas, Korean BBQ, 
 
 ## THE EDITOR
 
-My name is Michelle and I am a Korean-American living in California.
+The editor is Michelle Kim, and she is a Korean-American living in California. She enjoys immersing herself into her Korean culture and loves listening to K-Pop and watches K-dramas in her free time. 
 
 ### KOREAN HISTORY
 
