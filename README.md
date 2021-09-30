@@ -7,6 +7,7 @@ Are you curious about South Korea? You might have heard of Korean dramas, Korean
 The editor, Michelle Kim, is a Korean-American currently living in California. She enjoys immersing herself into her Korean culture and loves listening to K-Pop and watches K-dramas in her free time. With the current surge in interest in the Korean culture, Michelle hopes this website will be able to get others to learn about Korea. 
 
 ### KOREAN HISTORY
+![image](https://www.lallemandpharma.com/wp-content/uploads/2017/12/225px-Flag_of_South_Korea.svg_.png)
 The Korean peninsula consists of North and South Korea. As of 2019, South Korea has a population over 51 million and North Korea has a population over 25 million. 
 add more lol
 
