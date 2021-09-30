@@ -8,6 +8,7 @@ The editor, Michelle Kim, is a Korean-American currently living in California. S
 
 ### KOREAN HISTORY
 ![image](https://www.lallemandpharma.com/wp-content/uploads/2017/12/225px-Flag_of_South_Korea.svg_.png)
+
 The Korean peninsula consists of North and South Korea. As of 2019, South Korea has a population over 51 million and North Korea has a population over 25 million. 
 add more lol
 
@@ -18,9 +19,12 @@ Confucianism is the spiritual ground that has had the longest influence in Korea
 The traditional Korean family is a patrilocal stem family. The eldest son is expected to take on the responsibility of the family, such as taking care of the parents after retirement, and is also inherited the family estates. The family relationship is also part of a hierarchy, where the authority rests with the, traditionally male, head of the household. Due to the influence of Confucian values, the Korean woman's role in the household is restricted to the domestic duties. 
 
 ### KOREAN CUISINE
-The
+At the very heart of Korean cuisine is rice. Fermented dishes are a big part of Korean cuisine with one being kimchi, a big staple in the Korean diet. 
 
 ### KOREAN POPULAR CULTURE
+
+
+### K-POP
 
 
 ### KOREAN ENTERTAINMENT
