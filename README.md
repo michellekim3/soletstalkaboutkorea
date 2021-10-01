@@ -11,7 +11,7 @@ The editor, Michelle Kim, is a Korean-American currently living in California. S
 
 The Korean peninsula consists of Democratic People's Republic of Korea (DPRK, North Korea) and Republic of Korea (South Korea). The conflict between North and South Korea, known as the Korean War, cost over 2 million lives, and tensions still continue today. The United States and Soviet Union divided the Korean Peninsula into two zones of influence. The Republic of Korea (South Korea) declared its independence in 1950, and war broke out when North Korean troops supported by Soviet powers invaded into the Southern territory to gain power of the peninsula. The Demilitarized Zone (DMZ) runs along 38 degrees North, which gave it its name: The 38th Parallel. As of 2019, South Korea has a population over 51 million and North Korea has a population over 25 million. 
 
-Read more on Korea's history in this [link](https://www.newworldencyclopedia.org/entry/History_of_Korea)!
+Check out this [link](https://www.newworldencyclopedia.org/entry/History_of_Korea) to read more about Korea's history!
 
 ## KOREAN TRADITIONS AND BELIEFS
 Confucianism is the spiritual ground that has had the longest influence in Korea that have influenced many of the social and political philosophies of Korea today. The concept of hierarchy is very important in Korea, which stems from Confucian beliefs. The typical Korean hierarchy is set based on age, occupation, education level, and social class, which influences the emphasis on respecting elders and ancestors. 
