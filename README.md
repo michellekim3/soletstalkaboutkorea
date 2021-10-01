@@ -10,7 +10,6 @@ The editor, Michelle Kim, is a Korean-American currently living in California. S
 ![image](https://news.cgtn.com/news/2020-10-22/Back-to-38th-parallel-A-war-never-to-forget-UKsCpRFTsQ/img/badafb2653f144d591a12b3f5d2aa1eb/badafb2653f144d591a12b3f5d2aa1eb.jpeg)
 
 The Korean peninsula consists of North and South Korea. As of 2019, South Korea has a population over 51 million and North Korea has a population over 25 million. 
-add more lol
 
 ### KOREAN TRADITIONS AND BELIEFS
 Confucianism is the spiritual ground that has had the longest influence in Korea that have influenced many of the social and political philosophies of Korea today. The concept of hierarchy is very important in Korea, which stems from Confucian beliefs. The typical Korean hierarchy is set based on age, occupation, education level, and social class, which influences the emphasis on respecting elders and ancestors. 
@@ -47,5 +46,5 @@ A large part of Korean popular culture is the Korean pop music, otherwise known 
 Before K-Pop was at its peak, Korean dramas were what was popular globally. K-dramas range between a variety of genres––from historical to comedy to action, K-dramas cover everything in between. The most popular genre is romance, but it is quite different from the type of love stories we see on the screen in the West with less provocative scenes. Largely due to  heightened interest, many K-dramas have also started to become more progressive by tackling societal issues such as classism, bullying, mental health, and corruption. 
 
 ### UNDERSTANDING KOREAN CULTURE
-The Korean culture
+The Korean culture is a blend of interesting history, traditions, and many elements unique to Korea. 
 
