@@ -1,4 +1,5 @@
-# WELCOME, SO LET'S TALK ABOUT KOREA!
+# WELCOME, 
+# SO LET'S TALK ABOUT KOREA!
 ![image](https://www.hydro.com/globalassets/08-about-hydro/hydro-worldwide/istock-838039606_seoul-1036.jpg?quality=85&width=1036&height=440&mode=crop&center=0.5,0.5)
 Are you curious about South Korea? You might have heard of Korean dramas, Korean BBQ, and K-Pop, but may not know much about them. With the growing popularity of the South Korean culture, I'm here to talk about Korea. 
 
@@ -18,7 +19,9 @@ Confucianism is the spiritual ground that has had the longest influence in Korea
 The traditional Korean family is a patrilocal stem family. The eldest son is expected to take on the responsibility of the family, such as taking care of the parents after retirement, and is also inherited the family estates. The family relationship is also part of a hierarchy, where the authority rests with the, traditionally male, head of the household. Due to the influence of Confucian values, the Korean woman's role in the household is restricted to the domestic duties. 
 
 ### KOREAN CUISINE
-At the very heart of Korean cuisine is rice. Fermented dishes are a big part of Korean cuisine with one being kimchi, a big staple in the Korean diet. 
+At the very heart of Korean cuisine is rice, seafood, and vegetables. Fermented dishes are also a big part of Korean cuisine, the most common being kimchi, a big staple in the Korean diet. Each meal always has a number of side dishes
+
+Check out this link to see 40 of the best Korean dishes! [link](https://www.cnn.com/travel/article/best-korean-dishes/index.html)
 
 ### KOREAN POPULAR CULTURE
 
