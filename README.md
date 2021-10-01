@@ -30,12 +30,12 @@ At the very heart of Korean cuisine is rice, seafood, and vegetables. Korea has 
 Check out this [link](https://www.cnn.com/travel/article/best-korean-dishes/index.html) to see 40 of the best Korean dishes! 
 
 ### KOREAN POPULAR CULTURE
+Korean popular culture is known as "hallyu", which translates to "Korean wave". Korean popular culture is now popularized around the globe, and usually includes Korean pop music, dramas, and movies. 
+
+#### K-POP
 
 
-### K-POP
-
-
-### KOREAN ENTERTAINMENT
+#### KOREAN DRAMAS
 
 
 ### UNDERSTANDING KOREAN CULTURE
