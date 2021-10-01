@@ -26,7 +26,7 @@ One of Korea's biggest holidays is Lunar New Year's Day. Lunar New Year's Day oc
 ![image](https://lifestyle.inquirer.net/files/2020/10/Lifestyle83797.jpg)
 Another very important holiday in Korea is Korean Thanksgiving, or 추석, chuseok. Korean Thanksgiving (추석, chuseok) occurs in September-October where an ancestral memorial rite known as 차례 (charye) is the most important part. The family gathers to have a large feast, similar to America's Thanksgiving, but the Korean Thanksgiving gives thanks to their ancestors. Both holidays are very important in Korea and have certain food dishes the family eats in honor of the holiday.
 
-Check out this [link](https://www.koreanbapsang.com/15-korean-new-year-recipes/) for some recipes traditionally eaten Lunar New Year's Day (설날, seollal)!
+Check out this [link](https://www.koreanbapsang.com/15-korean-new-year-recipes/) for some recipes traditionally eaten on Lunar New Year's Day (설날, seollal)!
 
 Check out this [link](https://www.koreanbapsang.com/15-chuseok-korean-thanksgiving-recipes/) for some recipes traditionally eaten during Korean Thanksgiving (추석, chuseok)!
 
