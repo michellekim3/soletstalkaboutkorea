@@ -45,7 +45,7 @@ A large part of Korean popular culture is the Korean pop music, otherwise known 
 
 ### KOREAN DRAMAS
 ![image](https://www.cheatsheet.com/wp-content/uploads/2021/09/Netflix-Squid-Game-poster-1200x633.jpg)
-Before K-Pop was recognized globally, Korean dramas were originally what was globally popular. K-dramas range between a variety of genres––from historical to comedy to action, K-dramas cover everything in between. The most popular genre is romance, but it is quite different from the type of love stories we see on the screen in the West with less provocative scenes. Largely due to  heightened interest, many K-dramas have also started to become more progressive by tackling societal issues such as classism, bullying, mental health, and corruption. 
+Before K-Pop was recognized globally, Korean dramas were originally what was globally popular. K-dramas range between a variety of genres—from historical to comedy to action, K-dramas cover everything in between. The most popular genre is romance, but it is quite different from the type of love stories we see on the screen in the West with less provocative scenes. Largely due to  heightened interest, many K-dramas have also started to become more progressive by tackling societal issues such as classism, bullying, mental health, and corruption. 
 
 ## UNDERSTANDING KOREAN CULTURE
 The Korean culture is a blend of interesting history, traditions, and many elements unique to Korea. South Korea quickly developed from the millitant and undeveloped country it was and is now one of the most influential and global countries today. Thanks to this development, we can enjoy the products of Korean culture. 
