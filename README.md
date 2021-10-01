@@ -36,11 +36,11 @@ Korean popular culture is known as "hallyu", which translates to "Korean wave". 
 
 #### K-POP
 ![image](https://www.rollingstone.com/wp-content/uploads/2021/05/R1352_FEA_BTS_A_Openerfull.jpg)
-A large part of Korean popular culture is the Korean pop music, otherwise known as "K-Pop". K-Pop groups such as BTS have helped popularize the Korean popular culture around the globe.
+A large part of Korean popular culture is the Korean pop music, otherwise known as "K-Pop". Idol groups are the core of K-pop, where entertainment agencies recruit and train young trainees to hopefully debut as an artist in a group. Each group member has their assigned roles of being a leader, singer, dancer, rapper, visual, or some overlap of these roles. K-pop is essentially integrated content which includes, not just the music, but the elements of clothing, makeup, choreography, and visuals. K-pop music is largely influenced by trends in the Western mainstream music industry, with samples from rock, hip-hop, jazz, and more. 
 
 #### KOREAN DRAMAS
 ![image](https://www.cheatsheet.com/wp-content/uploads/2021/09/Netflix-Squid-Game-poster-1200x633.jpg)
-
+Before K-Pop was at its peak, Korean dramas were what was popular globally. K-dramas range between a variety of genres––from historical to comedy to action, K-dramas cover everything in between. The most popular genre is romance, but it is quite different from the type of love stories we see on the screen in the West with less provocative scenes. Largely due to  heightened interest, many K-dramas have also started to become more progressive by tackling societal issues such as classism, bullying, mental health, and corruption. 
 
 ### UNDERSTANDING KOREAN CULTURE
 
