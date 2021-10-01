@@ -21,6 +21,7 @@ The traditional Korean family is a patrilocal stem family. The eldest son is exp
 Korea celebrates two major holidays: Lunar New Year's Day (설날, seollal) and Korean Thanksgiving (추석, chuseok). Lunar New Year's Day occurs sometime in January or February where Koreans traditionally perform a ritual known as "세배" (sebae). This is when the entire family gathers in traditional Korean clothing called "한복" (hanbok), and performs a deep bow in respect while wishing for great luck for the new year. Korean Thanksgiving (추석, chuseok) occurs in September-October where an ancestral memorial rite known as 차례 (charye) is the most important part. The family gathers to have a large feast, similar to America's Thanksgiving, but the Korean Thanksgiving gives thanks to their ancestors. Both holidays are very important in Korea and have certain food dishes the family eats in honor of the holiday.
 
 Check out this [link](https://www.koreanbapsang.com/15-korean-new-year-recipes/) for some recipes traditionally eaten Lunar New Year's Day (설날, seollal)!
+
 Check out this [link](https://www.koreanbapsang.com/15-chuseok-korean-thanksgiving-recipes/) for some recipes traditionally eaten during Korean Thanksgiving (추석, chuseok)!
 
 ### KOREAN CUISINE
