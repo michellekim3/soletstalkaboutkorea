@@ -7,10 +7,11 @@ Are you curious about South Korea? You might have heard of Korean dramas, Korean
 The editor, Michelle Kim, is a Korean-American currently living in California. She enjoys immersing herself into her Korean culture and loves listening to K-Pop and watches K-dramas in her free time. With the current surge in interest in the Korean culture, Michelle hopes this website will be able to help others learn about Korea and overall share more about Korea and Korean culture. 
 
 ### KOREAN HISTORY
-![image](https://news.cgtn.com/news/2020-10-22/Back-to-38th-parallel-A-war-never-to-forget-UKsCpRFTsQ/img/badafb2653f144d591a12b3f5d2aa1eb/badafb2653f144d591a12b3f5d2aa1eb.jpeg)
 ![image](https://i2.wp.com/www.coldwarstudies.com/wp-content/uploads/2016/01/Image-1-25-16-at-11.02-AM.jpg?resize=583%2C438)
 
 The Korean peninsula consists of North and South Korea. The conflict between North and South Korea, known as the Korean War, cost over 2 million lives, and tensions still continue today. The United States and Soviet Union divided the Korean Peninsula into two zones of influence. The Republic of Korea (South Korea) declared its independence in 1950, and war broke out when North Korean troops supported by Soviet powers invaded into the Southern territory to gain power of the peninsula. The Demilitarized Zone (DMZ) runs along 38 degrees North, which gave it its name: The 38th Parallel. As of 2019, South Korea has a population over 51 million and North Korea has a population over 25 million. 
+
+Read more on Korea's history in this [link](https://www.newworldencyclopedia.org/entry/History_of_Korea)!
 
 ### KOREAN TRADITIONS AND BELIEFS
 Confucianism is the spiritual ground that has had the longest influence in Korea that have influenced many of the social and political philosophies of Korea today. The concept of hierarchy is very important in Korea, which stems from Confucian beliefs. The typical Korean hierarchy is set based on age, occupation, education level, and social class, which influences the emphasis on respecting elders and ancestors. 
@@ -47,5 +48,4 @@ A large part of Korean popular culture is the Korean pop music, otherwise known 
 Before K-Pop was at its peak, Korean dramas were what was popular globally. K-dramas range between a variety of genres––from historical to comedy to action, K-dramas cover everything in between. The most popular genre is romance, but it is quite different from the type of love stories we see on the screen in the West with less provocative scenes. Largely due to  heightened interest, many K-dramas have also started to become more progressive by tackling societal issues such as classism, bullying, mental health, and corruption. 
 
 ### UNDERSTANDING KOREAN CULTURE
-The Korean culture is a blend of interesting history, traditions, and many elements unique to Korea. 
-
+The Korean culture is a blend of interesting history, traditions, and many elements unique to Korea. South Korea quickly developed from the millitant and undeveloped country it was and is now one of the most influential and global countries today. Thanks to this development, we can enjoy the products of Korean culture. 
