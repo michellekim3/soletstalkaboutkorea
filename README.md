@@ -4,7 +4,7 @@
 Are you curious about South Korea? You might have heard of Korean dramas, Korean BBQ, and K-Pop, but may not know much about them. With the growing popularity of the South Korean culture, I'm here to talk about Korea. 
 
 ### THE EDITOR
-The editor, Michelle Kim, is a Korean-American currently living in California. She enjoys immersing herself into her Korean culture and loves listening to K-Pop and watches K-dramas in her free time. With the current surge in interest in the Korean culture, Michelle hopes this website will be able to help others learn about Korea and overall share more about Korea in general. 
+The editor, Michelle Kim, is a Korean-American currently living in California. She enjoys immersing herself into her Korean culture and loves listening to K-Pop and watches K-dramas in her free time. With the current surge in interest in the Korean culture, Michelle hopes this website will be able to help others learn about Korea and overall share more about Korea and Korean culture. 
 
 ### KOREAN HISTORY
 ![image](https://news.cgtn.com/news/2020-10-22/Back-to-38th-parallel-A-war-never-to-forget-UKsCpRFTsQ/img/badafb2653f144d591a12b3f5d2aa1eb/badafb2653f144d591a12b3f5d2aa1eb.jpeg)
