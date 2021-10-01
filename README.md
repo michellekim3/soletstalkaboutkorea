@@ -4,10 +4,10 @@
 Are you curious about South Korea? You might have heard of Korean dramas, Korean BBQ, and K-Pop, but may not know much about them. With the growing popularity of the South Korean culture, I'm here to talk about Korea. 
 
 ### THE EDITOR
-The editor, Michelle Kim, is a Korean-American currently living in California. She enjoys immersing herself into her Korean culture and loves listening to K-Pop and watches K-dramas in her free time. With the current surge in interest in the Korean culture, Michelle hopes this website will be able to get others to learn about Korea. 
+The editor, Michelle Kim, is a Korean-American currently living in California. She enjoys immersing herself into her Korean culture and loves listening to K-Pop and watches K-dramas in her free time. With the current surge in interest in the Korean culture, Michelle hopes this website will be able to help others learn about Korea and overall share more about Korea in general. 
 
 ### KOREAN HISTORY
-![image](https://www.lallemandpharma.com/wp-content/uploads/2017/12/225px-Flag_of_South_Korea.svg_.png)
+![image](https://www.lallemandpharma.com/wp-content/uploads/2017/12/225px-Flag_of_South_Korea.svg_.png) 
 
 The Korean peninsula consists of North and South Korea. As of 2019, South Korea has a population over 51 million and North Korea has a population over 25 million. 
 add more lol
@@ -35,7 +35,8 @@ Check out this [link](https://www.cnn.com/travel/article/best-korean-dishes/inde
 Korean popular culture is known as "hallyu", which translates to "Korean wave". Korean popular culture is now popularized around the globe, and usually includes Korean pop music, dramas, and movies. 
 
 #### K-POP
-
+![image](https://www.rollingstone.com/wp-content/uploads/2021/05/R1352_FEA_BTS_A_Openerfull.jpg)
+A large part of Korean popular culture is the Korean pop music, otherwise known as "K-Pop". K-Pop groups such as BTS have helped popularize the Korean popular culture around the globe.
 
 #### KOREAN DRAMAS
 
