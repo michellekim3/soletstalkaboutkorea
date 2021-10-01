@@ -39,6 +39,7 @@ Korean popular culture is known as "hallyu", which translates to "Korean wave". 
 A large part of Korean popular culture is the Korean pop music, otherwise known as "K-Pop". K-Pop groups such as BTS have helped popularize the Korean popular culture around the globe.
 
 #### KOREAN DRAMAS
+![image](https://www.cheatsheet.com/wp-content/uploads/2021/09/Netflix-Squid-Game-poster-1200x633.jpg)
 
 
 ### UNDERSTANDING KOREAN CULTURE
